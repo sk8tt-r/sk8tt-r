@@ -1,0 +1,4 @@
+- hi im sk8
+- i like web development and i am learning java script it is very hard wtf help
+- javascript and pythofn
+- yo momma
